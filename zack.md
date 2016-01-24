@@ -9,17 +9,21 @@ staying up too late
 doubling the candle's burn rate
 while trying to keep the ends from meeting.
 
+There's never nearly enough time
+to do all the things I want to do
+as well as they deserve doing.
+
 That's the crux of the issue, right?
 Limited rotations around this earth,
 only so many sets of ten thousand hours
 to spend becoming an expert
-scared of ending up a dilettante of worse,
+scared of ending up a dilettante or worse,
 too many changes of course 
 might mean missing dessert.
 
-Am I the sum of all my work? 
+Am I just the sum of my life's work? 
 
 I'm feeling tied down by this cash purse
 wondering how much is this net worth
 if the things that slip out
-are the ones I should have put first.
+are the ones I should put first.
