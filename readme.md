@@ -8,6 +8,8 @@ The final product is both a poem and a “repo” (in nerd language, that means 
 
 In the end, the tension between art and business, or any other set of opposites within us is a false dichotomy. I am not less of one thing because I am more of another. Humans are not zero-sum. While it sometimes feels impossible to make time for all the important things, friends and family and work and art and travel and food and mindfulness and adventure and learning, the knowledge that time is finite actually makes each experience we choose to spend our time on that much more sacred and valuable.
 
+<a href='https://github.com/zackliscio/zack/blob/master/zack.md' target='_blank'>You can read the poem here.</a>
+
 ~ Zack
 
 ps: you can see a summary of each change to the history of the poem and the comments that accompany the change here: <a href='https://github.com/zackliscio/zack/commits?author=zackliscio' target="_blank">Commit History</a>
