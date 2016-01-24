@@ -56,3 +56,9 @@ from hard choices to hard work
 learned that goal setting is its own reward
 when the new checkboxes were too high
 for my last list to even hope for
+
+There are days I want to be a poet.
+And there are better days when I know I am.
+Days I wish whole-heartedly I'd been an astronaut
+but even traipsing across the moon 
+still there are things I'd long to do
