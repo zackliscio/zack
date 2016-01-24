@@ -18,3 +18,8 @@ too many changes of course
 might mean missing dessert.
 
 Am I the sum of all my work? 
+
+I'm feeling tied down by this cash purse
+wondering how much is this net worth
+if the things that slip out
+are the ones I should have put first.
