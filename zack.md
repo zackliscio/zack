@@ -39,7 +39,20 @@ from the alloys of my meltdowns
 
 Like walking away from a good job
 with a degree in English and no answer
-to what are you going to do with that
+to "what are you going to do with that"
 after too many night shifts working retail
 cold nights unloading box trucks
 in the wake of 2008 and too big to fail
+
+Instead I set my sights on the California goldrush
+but kept my own set of heroes
+skipped the flyover states 
+and applied my lyricism to ones and zeros 
+from stacking boxes to full stack 
+thankless long hours to thankful longer ones
+from safe bet to betting the farm
+from free time to time warp
+from hard choices to hard work
+learned that goal setting is its own reward
+when the new checkboxes were too high
+for my last list to even hope for
