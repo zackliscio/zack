@@ -31,3 +31,15 @@ are the ones I should put first.
 But on the flip side of this verse
 I've stayed true to my adverse reaction 
 to suit jackets and starched shirts
+
+Even when it hurt I've been honest with myself
+willing to return the hats that don't fit to the shelf
+to reforge my best self 
+from the alloys of my meltdowns
+
+Like walking away from a good job
+with a degree in English and no answer
+to what are you going to do with that
+after too many night shifts working retail
+cold nights unloading box trucks
+in the wake of 2008 and too big to fail
