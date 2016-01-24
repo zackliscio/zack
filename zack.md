@@ -13,7 +13,7 @@ There's never nearly enough time
 to do all the things I want to do
 as well as they deserve doing.
 
-That's the crux of the issue, right?
+But that's the crux of the issue, right?
 Limited rotations around this earth,
 only so many sets of ten thousand hours
 to spend becoming an expert
@@ -27,3 +27,7 @@ I'm feeling tied down by this cash purse
 wondering how much is this net worth
 if the things that slip out
 are the ones I should put first.
+
+But on the flip side of this verse
+I've stayed true to my adverse reaction 
+to suit jackets and starched shirts
