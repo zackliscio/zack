@@ -64,3 +64,7 @@ I know that traipsing across the moon
 there'd be a world of things I'd long to do  
 So with a clear mind I welcome every hard step  
 and smile that the path I walk is one I choose.  
+
+
+-- 
+see the commit history <a href='https://github.com/zackliscio/zack/commits/master/zack.md' target='_blank'>here</a>.
