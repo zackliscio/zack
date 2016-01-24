@@ -57,8 +57,10 @@ learned that goal setting is its own reward
 when the new checkboxes were too high
 for my last list to even hope for
 
-There are days I want to be a poet.
-And there are better days when I know I am.
-Days I wish whole-heartedly I'd been an astronaut
-but even traipsing across the moon 
-still there are things I'd long to do
+There are still some days when I long to be a poet.
+And there are better days when I know I already am.
+And even when I wish whole-heartedly I'd been an astronaut
+I know that traipsing across the moon 
+there'd be a world of things I'd long to do
+So with a clear mind I welcome every hard step
+and smile that the path I walk is one I choose.
